@@ -80,7 +80,7 @@
 
 ## 🎓 Education
 
-**MCA** · MUIT Noida *(Pursuing)* &nbsp;|&nbsp; **BCA 70%** · RMLAU *(2021–2024)* &nbsp;|&nbsp; **Intermediate & High School** · CBSIC
+**MCA** · MUIT Noida *(Pursuing)* &nbsp;|&nbsp; **BCA 70%** · RMLAU *(2021–2024)* &nbsp;|&nbsp; **Intermediate & High School** · UP
 
 ---
 
